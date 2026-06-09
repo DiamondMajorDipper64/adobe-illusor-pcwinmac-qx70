@@ -1,4 +1,4 @@
-# 
+# Inteligente Adobe Illustrator efeitos para Mac OS | Seguro Adobe Illustrator efeitos para PC Windows. Com camada vetorial e pranchetas — otimizado para máximo desempenho em cada plataforma.
 
 
 
